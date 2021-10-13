@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Xebiqe
+- My interests are software engineering, biotechnology, quantum computing, AI, physics, chemistry, manual DSLR photography, and space industry.
+- What I'm currently learning is what I listed as interests above.
+- 💞️ I’m looking to work with some people on my interests.
+- 📫 My email is tjastala@gmail.com
